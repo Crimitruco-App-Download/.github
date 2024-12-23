@@ -17,7 +17,7 @@ Free chance for diamonds: Get tips and tricks to get free gems legally and use t
 Guide to complete mastery of the game: Access detailed tutorials and strategies to master every aspect of the Free Fire game.
 
 Event notifications and updates: Stay updated with the latest FF events, updates, and limited-time offers to get the most out of your gaming sessions.
-<p><img src="https://static.modapkload.com/crimitruco-app.jpg" style="width: 923px;"><br></p>##
+<p><img src="https://static.modapkload.com/crimitruco-app.jpg" style="width: 923px;"><br></p>
 
 
 ### Frequently Asked Questions:
